@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BUNYOD28102004
+- 👋 Hi, I’m @BUNYOD YOKUBOV
 - 👀 I’m interested in sports
 - 🌱 I’m currently learning computering and languages 
 - 💞️ I’m looking to collaborate on learning and creating webpages
